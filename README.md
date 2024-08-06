@@ -1,1 +1,1 @@
-# ATIK-H-PAID
+# PAID
